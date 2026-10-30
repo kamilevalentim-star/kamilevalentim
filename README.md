@@ -33,9 +33,8 @@ Currently learning and developing skills in:
 
 ### 📫 Let's Connect!
 
-- LinkedIn: [Add your LinkedIn URL]
-- Email: [Add your professional email]
-
+- LinkedIn:(https://www.linkedin.com/in/kamile-valentim-402367109/)
+- Email: kamilevalentimpt@gmail.com
 ---
 
 *Always learning, always analyzing, always improving.*
